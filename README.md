@@ -45,25 +45,4 @@ PUNTO #9
 
 ![image](https://github.com/user-attachments/assets/a6f70001-2b76-446a-b71b-0996b0277d11)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+![image](https://github.com/user-attachments/assets/789af9e5-e7b1-40e7-8efb-78fac72018ca)
